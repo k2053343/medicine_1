@@ -2,6 +2,8 @@
 Glucomet 5/500克糖美錠
 ====  
 ![](https://www.cgmh.org.tw/stor/picture/PME070M201404075007.JPG)  
+<br><br>
+<br><br>
 
 藥品資訊| 仿單 |指導仿單
 ---- | ---| ---
