@@ -1,5 +1,6 @@
 
-Glucomet 5/500克糖美錠
+
+<big>Glucomet 5/500克糖美錠</big>
 ====  
 ![](https://www.cgmh.org.tw/stor/picture/PME070M201404075007.JPG)  
 <br><br>
